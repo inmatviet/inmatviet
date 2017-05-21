@@ -12,7 +12,7 @@ Mỗi lần in tờ rơi hcm quý vị nên lưu ý một số đặc điểm sa
 Chọn lựa đối tác và gia công với công ty in ấn có giá rẻ hơn thị trường nhất mong muốn vừa giảm thiểu tối đa chi phí maketting cho doanh nghiệp. Khách hàng có thể xem xét giá in của 1-3 xưởng in để đặt hàng với công ty có chi phí thấp nhất. nhưng song song với đó cần phải chính xác mong muốn được quy trình sản xuất hoàn thiện sản phẩm, sản phẩm in ra phải đảm bảo chất lượng giấy.  
 Phần hình thành ý tưởng thiết kế tờ rơi phải đầy đủ các tin tức quan trọng để quảng cáo như mang tính khoa học, cô động khiến người đọc dễ hiểu song song với thì khía cạnh lôi cuốn sự tò mò cũng cần được phân bổ một cách hợp lý nhằm tạo cảm giác sự tò mò và sử dụng sản phẩm.  
 Xin giới thiệu xưởng in tờ rơi Mắt Việt:  
-Sản phẩm in tem nhãn: http://www.xuonginhopgiay.com/2017/03/in-tem-nhan-in-decal-giay-decalnhua.html 
+Sản phẩm in tem nhãn: http://www.xuonginhopgiay.com/2017/04/in-decal-nhua-decal-trong-be-theo-hinh.html
  
 Xưởng in Mắt Việt là nhà in chuyên in tờ gấp tại HCM cùng với các lichx vực khác như in tem nhãn,in bao thư, in folder với chi phí luôn thấp nhất nhất thị trường đi cùng sản sản phẩm in ấn luôn làm thỏa mãn mong muốn quý khách.  
 Xưởng in Mắt Việt là xưởng in là công ty tiên phong trong lĩnh vực in KTS nên biết được được sự hài lòng của khách hàng .  
@@ -20,6 +20,7 @@ Hiện nay Đơn vị thiết kế chuyên gnhiệp Mắt Việt là công ty ti
   
 Để có sản phẩm in hộp giấy đẹp, rẻ, chất lượng cao… doanh nghiệp cần lựa chọn đúng đối tác in ấn để đạt hiệu quả tốt nhất. Nhất là trong nền kinh tế hiện nay, ba tiêu chí Đẹp-Rẻ-Chất lượng thường không đi chung với nhau. Vấn đề tìm một đối tác in ấn có giá thành hợp lí mà vẫn đảm bảo được chất lượng sản phẩm trở nên quan trọng hơn bao giờ hết. 
 In hộp giấy tại Việt Nhật với những ưu điểm vượt trội: 
+http://www.xuonginhopgiay.com/2017/04/in-decal-giay-can-mang-be-theo-hinh.html
 Giá cả cạnh tranh do khách hàng không phải chịu các loại chi phí trung gian mà sẽ làm việc trực tiếp với xưởng in. 
 Có 5 năm kinh nghiệm làm việc với hơn 150 nhãn hàng lớn nhỏ trên khắp địa bàn TP.HCM 
 Mực in đúng chuẩn, nhiều loại giấy nhập khẩu đa dạng cho khách hàng lựa chọn. 
@@ -27,14 +28,15 @@ Sẵn sàng phục vụ 24/24 nếu quý khách có nhu cầu in nhanh và in g�
 Chúng tôi chuyên nghiệp trong tất cả các dịch vụ in ấn, in ấn giá rẻ như: Dịch vụ In Catalogue Giá Rẻ, in Tờ rơi, In Hóa đơn bán lẻ giá rẻ, in túi giấy tại HCM, .... 
 Các sản phẩm khác:  
 In decal nhựa, decal Trong bế theo hình 
-In Decal giấy cán màng bế theo hình 
-Xưởng in bao bì giấy giá rẻ 
-In hộp giấy đựng son số lượng theo yêu cầu 
-In Hộp giấy cao cấp, in hộp cứng số lượng ít 
+In Decal giấy cán màng bế theo hình http://www.xuonginhopgiay.com/2017/04/in-decal-giay-can-mang-be-theo-hinh.html
+Xưởng in bao bì giấy giá rẻ http://www.xuonginhopgiay.com/2017/04/xuong-in-bao-bi-giay-gia-re.html
+In hộp giấy đựng son số lượng theo yêu cầu http://www.xuonginhopgiay.com/2017/03/in-hop-cung-cac-loai-gia-re.html
+In Hộp giấy cao cấp, in hộp cứng số lượng ít http://www.xuonginhopgiay.com/2017/04/in-hop-giay-cao-cap-in-hop-cung-so-luong-it.html
 In Hộp giày đẹp giá rẻ, Hộp đựng giày In hộp carton giá rẻ HCM 
 In Hộp giấy đựng thực phẩm giá rẻ HCM 
 In hộp đựng mỹ phẩm giá rẻ 
 In hộp cứng các loại giá rẻ 
+
 Chúng tôi Nhận in Catalogue Giá Rẻ Chất lượng cao với thời gian ngắn nhất và chi phí là thấp nhất tại thị trường hcm 
 Các kích thước in Catalogue đa dạng từ A4, A5 và theo yêu cầu hoặc file thiết kế catalogue của Quý khách hàng. 
 Thời gian nhận hàng từ 1-3 ngày tùy thuộc vào tiến độ và có thể đáp ứng các chương trình khẩn cấp 
